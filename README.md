@@ -3,8 +3,7 @@
 
 Jordan Machita
 
-B.S. Mathematical Programming
-B.S. Finance
+B.S. Mathematical Programming; B.S. Finance
 
 Email: jordan.machita@spartans.ut.edu
 
